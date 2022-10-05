@@ -1,0 +1,1 @@
+# atividade-pensamento-computacioanl-3tri-2022
